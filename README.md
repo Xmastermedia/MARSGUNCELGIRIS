@@ -3,11 +3,11 @@
 
 ![images](https://github.com/user-attachments/assets/31b27f1a-c1a4-4baf-8673-58c17d351055)
 
-- ⚡ MARS BAHİS GÜNCEL GİRİŞ LİNKİ [TIKLA SİTEYE GİT](https://t2m.io/efesbetgir)
+- ⚡ MARS BAHİS GÜNCEL GİRİŞ LİNKİ [TIKLA SİTEYE GİT](https://t2m.io/efessbetcasino)
 
-- ⚡ MARS BAHİS GÜNCEL GİRİŞ LİNKİ [TIKLA SİTEYE GİT](https://t2m.io/efesbetgir)
+- ⚡ MARS BAHİS GÜNCEL GİRİŞ LİNKİ [TIKLA SİTEYE GİT](https://t2m.io/efessbetcasino)
 
-- ⚡ MARS BAHİS GÜNCEL GİRİŞ LİNKİ [TIKLA SİTEYE GİT](https://t2m.io/efesbetgir)
+- ⚡ MARS BAHİS GÜNCEL GİRİŞ LİNKİ [TIKLA SİTEYE GİT](https://t2m.io/efessbetcasino)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
